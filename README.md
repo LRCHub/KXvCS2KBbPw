@@ -1,0 +1,69 @@
+# Måneskin – GASOLINE
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+You're nothing but gasoline
+Starting fires since seventeen
+Silver spoon in daddy's jeans
+You go four, three, two, one,
+count it, count it down
+You live in a stolen dress
+You're so dark
+but you're painted red
+Soaking wet in your golden bed
+You go four, three, two, one,
+counting, counting down
+How are you sleeping at night?
+How do you close both your eyes?
+Living with all of those lives
+On your hands?
+Standing alone on that hill
+Using your fuel to kill
+We won't take it standing still
+Watch us dance
+How are you sleeping at night?
+How do you close both your eyes?
+Living with all of those lives
+On your hands?
+Standing alone on that hill
+Using your fuel to kill
+We won't take it standing still
+Watch us dance
+We're gonna dance on gasoline
+We're gonna dance on gasoline
+We're gonna dance on gasoline
+Your ego is dangerous
+Your own blood is losing trust
+Neighbors left in the dust
+You go four, three, two, one,
+count it, count it down
+Sitting on a stolen throne
+Playing god
+with a heart of stone
+The whole world is
+waiting for you to go
+Down, down, down, counting,
+counting down
+How are you sleeping at night?
+How do you close both your eyes?
+Living with all of those lives
+On your hands?
+Standing alone on that hill
+Using your fuel to kill
+We won't take it standing still
+Watch us dance
+How are you sleeping at night?
+How do you close both your eyes?
+Living with all of those lives
+On your hands?
+Standing alone on that hill
+Using your fuel to kill
+We won't take it standing still
+Watch us dance
+We're gonna dance on gasoline
+We're gonna dance on gasoline
+We're gonna dance on gasoline
+We're gonna dance on gasoline
+We're gonna dance on gasoline
+```
